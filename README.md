@@ -17,7 +17,7 @@ I'm an aspiring Data Analyst with a background in Electronics and Communication 
 
 **Talking about Personal Stuffs:**
 
-- 👨🏻‍💻 I’m currently fresher looking for job;
+- 👨🏻‍💻 I’m currently a fresher looking for job opportunities;
 - 🚀 I’m learning Data Analytics;
 - 💬 See my work and contact me if you like 
 - 📫 How to reach me: kurvaramya0018@gmail.com
