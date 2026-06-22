@@ -11,7 +11,7 @@ All about me
 
 ### Happy to see you here! &nbsp; 
 
-Hello! I'm an aspiring Data Analyst with a background in Electronics and Communication Engineering. I am passionate about working with data, discovering insights, and solving real-world problems through analytics.
+I'm an aspiring Data Analyst with a background in Electronics and Communication Engineering. I am passionate about working with data, discovering insights, and solving real-world problems through analytics.
 
 
 
